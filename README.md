@@ -1,2 +1,0 @@
-# Olesya
-Sky
